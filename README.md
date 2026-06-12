@@ -1,2 +1,2 @@
 # github.io
-World-Help-Auction Deutschland für Kinder
+World-Help-Auction Deutschland gUG. Deutschland für Kinder
